@@ -4,11 +4,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ihebjer01&label=Profile%20views&color=0e75b6&style=flat" alt="ihebjer01" /> </p>
 
-- 🔭 I’m currently working on **Carrer Center Recommendation System**
+- 🔭 I’m currently working on **Social Media Web Application**
 
-- 📫 How to reach me **iheb.jeridi@esprit.tn**
+- 📫 How to reach me **jeridiiheb22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gGUlEg893slMRVNKsiM7C2_2OF7FoSCW/view?usp=share_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZyckyEByE0AteRk82vpSeKGKcbTHCJ9u/view?usp=drive_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
