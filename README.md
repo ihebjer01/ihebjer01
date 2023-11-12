@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **jeridiiheb22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZyckyEByE0AteRk82vpSeKGKcbTHCJ9u/view?usp=drive_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIjEjnEdjbEJaRdkGzLbP3o9Eo6peI1d/view?usp=drive_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
